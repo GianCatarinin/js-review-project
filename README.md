@@ -1,2 +1,2 @@
-# AMAW MANI SI SIR OY KAPOY BA ANI
+# javascript review project by Gian Cataranin
 WELCOME TO MY IT WORLD
