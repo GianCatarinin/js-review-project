@@ -1,3 +1,1 @@
-ayaw ana sir bwesit man ka sir
-
-# asdasdasdasdasdasdas
+git hub ni sir ha 
